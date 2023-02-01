@@ -45,7 +45,7 @@ Give credit here.
 
 
 ## Contact
-Created by [@Paryanshu1] - feel free to contact me!
+Created by [@ParyanshuSourav1] - feel free to contact me!
 
 
 <!-- Optional -->
